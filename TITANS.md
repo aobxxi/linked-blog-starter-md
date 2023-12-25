@@ -1,0 +1,1 @@
+A TITAN is the first sentient being created in any DIMENSION. They can come in many different forms, corresponding to their DIMENSION, this form, if corporeal, will often be very large. The TITAN's size and / or power is relative to their DIMENSION's DM
